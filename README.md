@@ -1,1 +1,1 @@
-# mid-project-proposal
+# mid-project
